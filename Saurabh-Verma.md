@@ -6,6 +6,6 @@ Before starting my master’s, I gained over three years of experience as a Busi
 
 With a passion for data and analytics, I am eager to leverage my experience and knowledge in a dynamic and collaborative environment. 
 
-Interesting fact about me is, I played national level football (soccer) representing my under-grad University. 
+Interesting fact about me is, I played national level football (soccer) representing my under grad University. 
 
 ![Alt text](Saurabh-Verma.png)
